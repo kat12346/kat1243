@@ -1,0 +1,2 @@
+# kat1243
+ello! Hope you are well! Are you still looking for help with a pitching by/editing/writing and placements by an experienced publicist? I saw your ad on Upwork and have been working in the space for over 13 years- Let me know!     -- Thanks!   Kat Fleischman                          President + CEO                           Do-Tell Publicity           (305) 490-5911    ceo@do-tellpr.com  dotellpublicity.com
